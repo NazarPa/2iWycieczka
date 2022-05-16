@@ -1,3 +1,5 @@
+#2iWycieczka
+
 Co ci się podobało
 
 1. Pierwszą rzeczą, która mi się podobała, było to, że mieszkaliśmy w najlepszym pokoju. Na dole jesteście fajnymi ludźmi
